@@ -19,10 +19,11 @@ i mostly use typing quirks AND use tone tags so please lmk if you don't want ton
 . . . . . ╰──╮ᶻ 𝗓 𐰁
 
 ## INTERESTS <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/5088ca12-ee5a-4cb3-99d0-93b0001ca6c8" />
-i'm interested innnnn....... UU & LS [unstable universe and lifesteal] Mortal Kombat , <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/84aec72b-3d2d-46ee-b646-f80773b82127" /> Forsaken , Evade  .. Supernatural , DOD <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/6bca6f7c-cf9b-42ee-a009-5af83728a508" /> Danganronpa  ,, Eden's garden . Hannibal , Limbus company . Case 1225 ! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/5df1a4f9-d41d-4762-8972-86caeed84277" /> *[side note; i FW mystery [visual] novels and horror movies so you may recommend me some :3]*
+i'm interested innnnn....... UU & LS [unstable universe and lifesteal] Mortal Kombat , <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/84aec72b-3d2d-46ee-b646-f80773b82127" /> Forsaken , Evade  .. Supernatural , DOD <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/6bca6f7c-cf9b-42ee-a009-5af83728a508" /> Danganronpa  ,, Eden's garden . Hannibal , Limbus company . Case 1225 ! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/5df1a4f9-d41d-4762-8972-86caeed84277" /> *[side note; i FW mystery [visual] novels and horror movies so you may recommend me some :3]* 
 
 
 **Hobbies** *!!*
 i like to edit, animate, draw etc.. mostly participate in regi events ,, <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/17871775-3764-49b3-a87c-19dfae978447" /> laze around../j <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/5d7c0896-6817-4ef7-87ba-9b1086da2cff" />
 
-*Unfortuneatelyy.. i am mostly on hiatus due to school, but thank you for reading this! ^_^*
+*Unfortuneatelyy.. i am mostly on hiatus due to school, but thank you for your time to read this! ^_^* <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/d2235724-9a76-4561-badd-576b129bbe85" />
+
